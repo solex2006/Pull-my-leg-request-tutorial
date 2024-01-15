@@ -15,9 +15,11 @@ A flurry of thoughts spun into existence in cheese's mind.\
 Cheese looked to their left, and saw Mirror.
 "Mirror, you're... like me too? What does this mean?"
 
+<br>
+
 *"It means the Wizard's spell worked, Cheese. You and I... we're functionally immortal."*
 
-
+<br>
 
 #**1.7x10^106 Years Later**\
 
