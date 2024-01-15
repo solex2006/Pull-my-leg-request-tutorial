@@ -3,7 +3,11 @@ An open challenge to submit comical punchlines to my jokes to demonstrate how pu
 
 Why did the chicken cross the road?
 
+get nuget
+
 What is orange and sounds like a parrot?
+
+bird
 
 What did the cheese say to the mirror?
 
