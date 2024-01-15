@@ -9,7 +9,7 @@ A flurry of thoughts spun into existence in cheese's mind.\
 
 *"It's your internal monologue, Cheese."*
 
-Cheese looked their left, and saw Mirror.
+Cheese looked to their left, and saw Mirror.
 "Mirror, you're... like me too? What does this mean?"
 
 *"It means the Wizard's spell worked, Cheese. You and I... we're functionally immortal."*
