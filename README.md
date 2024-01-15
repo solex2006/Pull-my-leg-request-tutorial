@@ -10,6 +10,7 @@ A flurry of thoughts spun into existence in cheese's mind.\
 
 *"It's your internal monologue, Cheese."*
 
+<br>
 
 Cheese looked to their left, and saw Mirror.
 "Mirror, you're... like me too? What does this mean?"
