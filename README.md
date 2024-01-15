@@ -20,4 +20,5 @@ Edam
 What type of cheese doesnt belong to you?
 Nacho Cheese
 
-What do you call a french man wearing sandals Philip Philop
+What do you call a french man wearing sandals?
+Philip Philop
