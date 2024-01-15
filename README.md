@@ -6,7 +6,7 @@ Cheese opened their eyes with a start.\
 A flurry of thoughts spun into existence in cheese's mind.\
 `Y-Yes. This is... me. But what is me? I don't understand. What even is this?`
 
-
+<br>
 
 *"It's your internal monologue, Cheese."*
 
