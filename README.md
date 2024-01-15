@@ -1,4 +1,4 @@
-# What did the cheese say to the mirror?\
+# What did the cheese say to the mirror?
 
 
 Cheese opened their eyes with a start.\
