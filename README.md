@@ -11,7 +11,7 @@ How should you teach complex computer science? You don't, you wont get paid enou
 
 What did the ocean say to the beach? Nothing, it just waved
 
-What type of cheese do you use if you need to hide a horse?
+What type of cheese do you use if you need to hide a horse? Mascarpone
 
 What type of cheese is made backwards? edam
 
