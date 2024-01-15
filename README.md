@@ -6,12 +6,14 @@ Why did the chicken cross the road?
 What is orange and sounds like a parrot?
 
 What did the cheese say to the mirror?
+Halloumi
 
 How should you teach complex computer science?
 
 What did the ocean say to the beach?
 
 What type of cheese do you use if you need to hide a horse?
+Marscapone
 
 What type of cheese is made backwards?
 
