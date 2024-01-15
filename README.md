@@ -30,7 +30,7 @@ In the dim light of the final Supernova, Cheese spoke in a quiet, timid voice:
 
 "I'm scared, Mirror."
 
-*"Me too, Cheese."* Mirror whispered. *"Although, I'm glad we could end it together. I always looked best beside you."* He chuckled. *"Speaking of... How *do* I look, Cheese?"*
+*"Me too, Cheese."* Mirror whispered. *"Although, I'm glad we could end it together. I always looked best beside you. But now, at the end of everything... How *do* I look, Cheese?"*
 
 Cheese looked into Mirror's metallic face, and saw the closeness they shared, the strength of their relationship, forged over countless eons. Cheese took a deep breath and spoke:
 
