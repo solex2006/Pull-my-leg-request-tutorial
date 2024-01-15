@@ -13,7 +13,7 @@ A flurry of thoughts spun into existence in cheese's mind.\
 <br>
 
 Cheese looked to their left, and saw Mirror.
-"Mirror, you're... like me too? What does this mean?"
+"Who are you? Are you... like me too? What does this mean?"
 
 <br>
 
