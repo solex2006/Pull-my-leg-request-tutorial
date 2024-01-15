@@ -7,7 +7,9 @@ A flurry of thoughts spun into existence in cheese's mind.\
 `Y-Yes. This is... me. But what is me? I don't understand. What even is this?`
 
 
+
 *"It's your internal monologue, Cheese."*
+
 
 Cheese looked to their left, and saw Mirror.
 "Mirror, you're... like me too? What does this mean?"
@@ -15,7 +17,9 @@ Cheese looked to their left, and saw Mirror.
 *"It means the Wizard's spell worked, Cheese. You and I... we're functionally immortal."*
 
 
+
 #**1.7x10^106 Years Later**\
+
 
 
 The Cheese and the Mirror looked upon a dying Universe. All around them, the Heat Death of Creation was apparant.
