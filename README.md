@@ -11,6 +11,7 @@ What did the cheese say to the mirror?
 Looking gouda
 
 How should you teach complex computer science?
+break it down into byte size chunks and nibble away at it
 
 What did the ocean say to the beach?
 it's nice sea you
