@@ -8,19 +8,19 @@ What is orange and sounds like a parrot?
 A parrot that ate too many wotsits.
 
 What did the cheese say to the mirror?
-Looking brietiful
+Looking brietiful.
 
 How should you teach complex computer science?
-Not at 8:30
+Not at 8:30 am.
 
 What did the ocean say to the beach?
 Nothing, it just waved.
 
 What type of cheese do you use if you need to hide a horse?
-Maskapony
+Maskapony.
 
 What type of cheese is made backwards?
-Edam
+Edam.
 
 What type of cheese doesnt belong to you?
-Myzzarella
+Myzzarella.
