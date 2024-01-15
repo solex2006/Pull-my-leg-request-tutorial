@@ -2,18 +2,18 @@
 An open challenge to submit comical punchlines to my jokes to demonstrate how pull requests can enable collaborative working.
 
 Why did the chicken cross the road?
-  To get to the other side
+  To get to the other side  
 What is orange and sounds like a parrot?
-  A carrot
+  A carrot  
 What did the cheese say to the mirror?
-  Halloumi
+  Halloumi  
 How should you teach complex computer science?
-  In a functional method
+  In a functional method  
 What did the ocean say to the beach?
-  Nothing, it just waved
+  Nothing, it just waved  
 What type of cheese do you use if you need to hide a horse?
-  Mascarpone
+  Mascarpone  
 What type of cheese is made backwards?
-  Edam
+  Edam  
 What type of cheese doesnt belong to you?
-  Nacho cheese
+  Nacho cheese  
