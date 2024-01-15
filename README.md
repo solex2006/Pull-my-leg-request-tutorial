@@ -17,4 +17,4 @@ What type of cheese is made backwards?
 
 What type of cheese doesnt belong to you?
 
-What did the Java Code say to the C code?
+What did the Java Code say to the C code? You’ve got no class
