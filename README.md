@@ -25,7 +25,7 @@ Cheese looked to their left, and saw Mirror.
 
 
 
-The Cheese and the Mirror looked upon a dying Universe. All around them, the Heat Death of Creation was apparant.
+The Cheese and the Mirror looked upon a dying Universe. All around them, the Heat Death of Creation was apparent.
 In the dim light of the final Supernova, Cheese spoke in a quiet, timid voice:
 
 "I'm scared, Mirror."
