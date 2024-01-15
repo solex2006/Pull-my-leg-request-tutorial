@@ -4,7 +4,7 @@
 Cheese opened their eyes with a start.\
 `What... what is this?`\
 A flurry of thoughts spun into existence in cheese's mind.\
-`Y-Yes. This is... me. But what is me? I don't understand. What even is this?`/
+`Y-Yes. This is... me. But what is me? I don't understand. What even is this?`
 
 
 *"It's your internal monologue, Cheese."*
