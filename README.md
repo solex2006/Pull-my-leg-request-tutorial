@@ -24,3 +24,5 @@ What do you call when Batman skips church? Christian Bail.
 A broom was made a senior officer in the army. "Brooms can't join the army!", everyone said. What a sweeping generalisation.
 
 Two chemists walked into a bar. The first one said: "I'll have a glass of H20." The second one said: "I'll have a glass of H20, too." The barman, who was not a chemist, gave them both glasses of water.
+
+Justice is a dish best served cold. If it was served warm, it would be justwater.
