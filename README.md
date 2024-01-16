@@ -16,3 +16,5 @@ What type of cheese do you use if you need to hide a horse? Sufficiently large c
 What type of cheese is made backwards? Nacho cheese.
 
 What type of cheese doesnt belong to you? Edam. Wait, no, that's wrong.
+
+A piece of string walks into a bar. The barman says: "Are you a piece of string?" The piece of string says: "No, I'm a frayed knot."
