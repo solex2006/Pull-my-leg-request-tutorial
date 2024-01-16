@@ -18,3 +18,9 @@ What type of cheese is made backwards? Nacho cheese.
 What type of cheese doesnt belong to you? Edam. Wait, no, that's wrong.
 
 A piece of string walks into a bar. The barman says: "Are you a piece of string?" The piece of string says: "No, I'm a frayed knot."
+
+What do you call when Batman skips church? Christian Bail.
+
+A broom was made a senior officer in the army. "Brooms can't join the army!", everyone said. What a sweeping generalisation.
+
+Two chemists walked into a bar. The first one said: "I'll have a glass of H20." The second one said: "I'll have a glass of H20, too." The barman, who was not a chemist, gave them both glasses of water.
