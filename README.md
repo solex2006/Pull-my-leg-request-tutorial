@@ -10,6 +10,7 @@ What did the cheese say to the mirror?
 Cheesed to meet you
 
 How should you teach complex computer science?
+complexly?
 
 What did the ocean say to the beach?
 It waved
